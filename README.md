@@ -1,0 +1,1 @@
+# FasterNet-Politica-de-Privacidade
